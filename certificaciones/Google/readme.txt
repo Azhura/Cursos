@@ -1,0 +1,1 @@
+Certificados emitidos por google.
